@@ -1,2 +1,1 @@
-# ricoteros
-A-PISS
+Cuando pueda subo el codigo manga de cbupavergas
